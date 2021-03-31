@@ -1,0 +1,1 @@
+# minsik-vs-covid
